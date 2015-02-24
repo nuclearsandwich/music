@@ -13,3 +13,8 @@
 ## 23 Feb 2015
 
 :radio: [Asobi Seksu's *Citrus*](http://open.spotify.com/album/3RVfSQvbTbQCYiiVylNqkS)  
+:tv: [Wavves's *Sail to the Sun*](https://www.youtube.com/watch?v=lfPNbZB6PvM)
+
+## 24 Feb 2015
+
+:radio: [Boy in Static's *Candy Cigarettes*](http://open.spotify.com/album/129zOkwFLdfPSFvSdHDuVv)  
