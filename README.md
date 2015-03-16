@@ -55,3 +55,9 @@
 ## 14 March 2015
 
 :radio: [New Wave Syria's *Summer*](http://newwavesyria.bandcamp.com/album/summer)  
+:tv: [Rymdreglage's Terminator 2 - 20 years](https://www.youtube.com/watch?v=a4mWyeVitNQ)
+
+## 15 March 2015
+
+:radio: [The bird and the bee's Interpreting the Masters volume 1](http://open.spotify.com/album/6Bh8grVrJlDIJ0vJKtakTi)  
+:tv: [Cranes - Beautiful Friend](https://www.youtube.com/watch?v=Mvso2fEMh94)
